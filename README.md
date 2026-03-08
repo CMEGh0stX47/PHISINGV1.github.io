@@ -30,6 +30,3 @@ PUNYA MASALAH ?
 ---
 **Made X9X**
 🚀
-
-# CONTOH KALAU MAU LIAT 
-# https://muhamadarbyakhsannurjati.github.io/PHISINGV1.github.io/
